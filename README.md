@@ -1,1 +1,1 @@
-# NBC_CH3_06_Assignment
+# NBC_CH3_06_Assignment 이승진
